@@ -6,4 +6,3 @@
 ⭐️ [insta](https://www.instagram.com/tech.kei) | [webtoon](https://www.webtoons.com/en/canvas/bits-and-bytes/list?title_no=847572) | [youtube](https://www.youtube.com/channel/UCdTKj8_s0TIlhY82Ltm2wKw)
 
 _stay safe and hope you have a great rest of your day! <3_
- 
